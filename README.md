@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @kardsix
+- 👀 I’m interested in games
